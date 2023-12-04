@@ -1,1 +1,1 @@
-# jeyz.github.io
+# thinkingdogs.github.io
